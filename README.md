@@ -69,7 +69,7 @@
 ---
 
 ## 🌐 Connect with Me  
-- 📧 Email: [nithishkumarnk2330@gmail.com](mailto:nithishkumarnk2330@gmail.com)  
+- 📧 Email: [nithishkumarnk233003@gmail.com](mailto:nithishkumarnk2330@gmail.com)  
 - 🔗 LinkedIn: [linkedin.com/in/nithish-kumar-nk-00812026b](https://www.linkedin.com/in/nithish-kumar-nk-00812026b)  
 - 📱 Phone: +91 7904446279  
 
